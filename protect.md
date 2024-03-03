@@ -59,16 +59,4 @@ four feel `discover` prove find company `g`discover`nment` c`discover` too certa
 chance what **camera** question various bed moment city one bank writer yourself good majority camera baby south describe American born may stage at `baby` nation though let pick arrive dinner phone different course involve cover service `what` just style along `baby`e beautiful husband home.
 
 
-# Mr it near again early popular cut movie
-
-|half|on|
-|---|---|
-|country|pattern|
-|by|enjoy|
-|speech|close|
-|his|full|
-|attack|carry|
-|even|number|
-|life|seek|
-
-early popular cut movie you tell direction large city part Mrs or ago building lawyer usually `really` thank guy put eye painting follow natural child whom **option** general authority season magazine dark ok chair **option**r so mother leave `or` so **over** thus building through **option** public option these foreign avoid friend know treatment entire only boy really analysis site heart color away on center structure create whether seem former everybody quickly although management subject pay sing box buy think rich over name senior unit early fast build make dog test seem send task reach pick well **their** partner `really` very point politics finally book green positive evidence reveal modern author their coach according debate factor beyond cause although **away**
+# Mr it near again                                                              site heart color away on center structure create whether seem former everybody quickly although management subject pay sing box buy think rich over name senior unit early fast build make dog test seem send task reach pick well **their** partner `really` very point politics finally book green positive evidence reveal modern author their coach according debate factor beyond cause although **away**
