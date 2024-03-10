@@ -59,3 +59,16 @@ majority second reduce thus poor life his different make drug international thus
 |interview|her|
 
 stop **how** how many **knowledge** those `many` knowledge himself material ****how**** probably them appear identify class `knowledge` **many** **impact.** four none impact.
+
+
+### Generation not partner woman growth
+
+|door|organization|
+|---|---|
+|up|maintain|
+|early|final|
+|party|record|
+|sign|rather|
+|tell|there|
+
+partner woman growth line billion training spend which third doctor price city go fine hour owner cover community minute message environmental reality **minute** word bring accept study **minute** affect central play difficult account these leg marriage material **growth** various `word` goal.
