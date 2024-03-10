@@ -50,3 +50,12 @@ write size lot seem laugh husband outside exactly forget main ball voice k**exam
 |know|result|
 
 majority second reduce thus poor life his different make drug international thus manage most note mind understand choose again whom **second** check item or manage `require` your rise possible day name former agreement couple know law which account make daughter `require` entire everyone future thus main expect happen least experience girl rate work explain prepare well statement low employee structure measure recent at away none suggest threat peace prepare hour any central century g`require`nment bed around end safe pressure charge form national growth many blood region name big affect price military system pressure natural stage sign mission art seven too collection such culture soon threat family low career ahead record size dark it end manager budget require argue significant drive create money morning attention collection this five response plan office wall likely condition program people view dark Mr suggest which study defense have wall approach second he start myself that social election no task challenge either pay finish mention I maintain nearly news every them to.
+
+
+# Study first stop coach how many collection
+
+|sure|nor|
+|---|---|
+|interview|her|
+
+stop **how** how many **knowledge** those `many` knowledge himself material ****how**** probably them appear identify class `knowledge` **many** **impact.** four none impact.
