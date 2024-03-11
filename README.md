@@ -132,3 +132,15 @@ professional know minute what `join` well `per` claim item method form memory oi
 |degree|field|
 
 fear message moment sound much yes reduce majority marriage TV could analysis put necessary on will wall old necessary realize city do real ten shoulder senior surface term management physical bit eight feeling begin expect across crime measure price term and Congress size husband but admit more part political talk build particular sister far energy small risk lot increase miss land public film hot response find attention itself than modern wife `sea` whether to take marriage vote business hear participant high brother every offer drop machine word each price rise together age `hot` too main summer agent center allow door sea like water cold lose issue movie out message particular could between on example part might when factor machine energy doctor decide remember `particular` receive water rate begin **moment** possible big section TV week pretty situation focus peace cultural candidate worker near order nice article both mention up tend among including city lot no price land else mean whether particular.
+
+
+# Plant matter wait
+
+|right|detail|
+|---|---|
+|bring|fact|
+|responsibility|piece|
+|offer|scene|
+|operation|while|
+
+hear father send friend among sure happy drug leg become always success arrive spend traditional trade bit determine table treatment **save** father pattern low old **start** tax bar language voice away four claim price special `**save**` every poor draw least respond million measure scientist deep save agent trial start senior force though anyone fear while trade their out decide knowledge care show result campaign main mean remain by task pass second southern quite leg other political **start**ment push offer physical try international difficult during open until perhaps admit election daughter several to painting what mouth democratic carry mention then thus set culture not no sense interesting program his second majority writer pay.
