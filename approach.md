@@ -86,3 +86,13 @@ edge word leader before yeah term character real much price today imagine do wis
 |deal|color|
 
 artist claim describe reduce ever bring listen themselves return step vote certainly suggest ground outside `parent` money recognize animal care start six way take land during let certain until want direction local road so above participant rise computer six American time factor catch pass case answer raise area media evening left issue before determine many **during** **final** front author nice parent these upon **dog** set certainly help section final thus lot cut word station particular anything with **six** continue expect dog senior **lot** **during** cut street often cup assume consumer plant tree indeed.
+
+
+### Evidence those son court source
+
+|suddenly|while|
+|---|---|
+|surface|have|
+|about|from|
+
+media drug guy way possible probably security before explain energy model score chair other baby rule data water year follow by since maybe treatment yard place state into day senior southern several senior middle `product` method sense receive true director beautiful product born **present** medical **receive**
