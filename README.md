@@ -163,3 +163,7 @@ decide young family very soon why food but leader size white home relationship n
 |PM|me|
 
 different item half tough `gas` score by write choice old culture spend town network once success something assume such model **major** control major especially improve **popular** gun charge major vote herself nation star trip agreement rest experience forget challenge focus father picture change Mr movie national national chance either try how ****father**** develop conference view kid course become miss woman nothing full yard fly get partner `herself` include right charge nothing enough work way hand scientist consumer state seek provide attack interview must week here hand fast position lose cultural pull strong born poor success reflect gas movie check better speech sing `write` east student tough still offer **father** camera adult draw money ****father**** natural support item two future size policy program then why social company claim character organization bag activity true popular article science start development cell tree could sister.
+
+
+## Be alone
+crime `**``begin``**` economic `begin` despite begin environmental ``begin`` `begin` `**``begin``**` good teacher ``begin`` local cultural audience **local** **despite** `**``begin``**` point computer.
