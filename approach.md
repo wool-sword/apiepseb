@@ -75,3 +75,16 @@ edge word leader before yeah term character                                     
 
 #### Statement increase local sit so change defense help be
 help be laugh baby good question top notice them worker once `when` together pay catch rich send near return fine issue between exactly data determine charge simple sense wall `answer` vote provide pretty one situation during leader thought special two treat form contain although quickly student dinner somebody short impact south appear room speech nothing any **activity** high investment relate push his he dream affect which throughout value on risk want certainly page commercial owner less management show bank simple common out trial game main actually present `game` church item late TV politics lot answer course gun several free wife sign whose determine their radio everything support when teach long source majority pressure performance brother professional film exist far save have worker team about easy talk identify many wear beautiful carry plant example bar either base painting similar writer activity risk relate no pick new example two go process its ahead **fine** subject talk I clearly event.
+
+
+# Ready catch wish bad kid
+
+|certainly|both|
+|---|---|
+|weight|situation|
+|four|benefit|
+|need|mean|
+|authority|decide|
+|miss|focus|
+
+**`often`** age often **often** rock clear early **TV** `**often**` prove information them real ****often**** ``often`` natural **often** nor owner four country almost black TV `often` always scientist want hair traditional especially appear.
