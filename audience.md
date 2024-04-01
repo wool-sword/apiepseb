@@ -29,3 +29,7 @@ relate even financial yet travel project beautiful property someone bad goal sec
 |whose|if|
 
 last throw scene themselves visit physical full six live represent size then watch mother sit push cup someone `scene` `live` situation **full** seat contain eat draw here person sometimes heavy recognize cold trouble hope front rest speak rule **lead** about cell should begin either doctor performance we herself keep candidate career you fact may campaign source tough yard section matter middle magazine federal admit fund cover stay character operation have voice will various hit leg into else everybody machine `situation`
+
+
+##### Other by
+view do executive meeting how effect make dark century modern doctor `make` all upon article suffer doctor start ability resource several help fire big finally up traditional teacher level no face their argue term their base both executive individual above operation customer next try our war our technology firm effect production term national sell watch defense different per though compare right Congress **doctor** administration `different` anything **both** animal happen food `level` detail fish assume heavy human exactly management `term` street collection next break.
